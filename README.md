@@ -15,4 +15,4 @@
 Answer the questions below
 * Something interesting about me is i like rice and fish sauce.
 * Ask Mr. Vu anything: Mr. Vu what games do you play?
-* List your sports and extracurriculars you participate in
+* List your sports and extracurriculars you participate in yo momma style
